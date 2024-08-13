@@ -1,1 +1,1 @@
-Personal website made by Shinchan!!!
+Personal website made for Shinchan!!!
